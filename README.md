@@ -1,0 +1,4 @@
+- 👋 oi , eu sou @Luaninhaa
+- 👀 estou interessada em aprender
+- 🌱 estou aprendendo a lidar com as pessoas
+- 📫 como me achar luana.pedrozo@escola.pr.gov.br
